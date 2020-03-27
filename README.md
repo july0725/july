@@ -1,2 +1,0 @@
-# july
-ini wibku
